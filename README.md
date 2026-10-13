@@ -1,0 +1,2 @@
+# premium-zardozi-001-zardozi-gold-thread-embroidery
+Tired of piecing together fragmented tutorials and struggling to source authentic materials for Zardozi? This studio gives you everything you need to master the intricate art of gold thread embroidery from your own home.  This comprehensive digital studio solves the problem of scattered knowledge by consolidating centuries-old techniques, curated m
